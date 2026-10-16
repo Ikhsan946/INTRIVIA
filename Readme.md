@@ -8,7 +8,7 @@
 ## Kesan Pesan INTRIVIA Sejauh Ini 
 INTRIVIA sangat membantu untuk memperkembangkan skill sejak maba.
 
-## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
+## Kesan Pesan Cluster 4 Sejauh Ini 
 HAPPY! SERU! FUN! SEMUANYA KEMREN. Semoga kita bisa saling support meskipun diluar osdep.
 
 ## Harapan Kuliah 
